@@ -1,4 +1,4 @@
-[![MasterHead](https://www.google.com/search?q=t%C3%BCrkiye+bayra%C4%9F%C4%B1&tbm=isch&source=lnms&sa=X&ved=2ahUKEwjIzPzkwbaAAxXAr5UCHfYBBeYQ_AUoAXoECAUQAw&biw=960&bih=971&dpr=1#imgrc=DVnmYaB1tBf-WM)
+[![MasterHead](https://www.google.com/url?sa=i&url=https%3A%2F%2Ftr.m.wikipedia.org%2Fwiki%2FDosya%3AFlag_of_Turkey.svg&psig=AOvVaw3LlBEH-MxCiYcN0D4160Io&ust=1690809606622000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCMii9eHCtoADFQAAAAAdAAAAABAD)
 
 
 
